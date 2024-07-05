@@ -1,0 +1,1 @@
+# Pattern-Recognition_obtaining-some-basic-information
